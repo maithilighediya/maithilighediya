@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # Hi i'am Maithili Ghediya
 
 
